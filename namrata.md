@@ -1,0 +1,1 @@
+My name is Namrata Shinde. I am a 3rd year student with knowledge of html and CSS. Good in C programming, DSA and basics of python and JAVA and researching any topic. Regarding soft skills: Good in communication, team work, leadership and organization.
